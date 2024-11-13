@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Life**
 
-- 📫 How to reach me **rahulsethi30000@gmail.com**
+- 📫 How to reach me **rahulsethi300000@gmail.com**
 
 - ⚡ Fun fact **Am ded**
 
